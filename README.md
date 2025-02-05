@@ -6,8 +6,8 @@ Welcome to the **Live Cricket Streaming App**, your go-to destination for watchi
 
 ## 🏏 Download & Start Watching Now!
 
-[![Download Now](https://img.shields.io/badge/📥Download%20Now-blue?style=for-the-badge)](https://yourdownloadlink.com)
-[![Watch Live](https://img.shields.io/badge/🔴Watch%20Live%20Now%20➡️-red?style=for-the-badge)](https://yourstreaminglink.com)
+[![Download Now](https://img.shields.io/badge/📥Download%20Now-blue?style=for-the-badge)](https://poawooptugroo.com/4/8900638)
+[![Watch Live](https://img.shields.io/badge/🔴Watch%20Live%20Now%20➡️-red?style=for-the-badge)](https://poawooptugroo.com/4/8900638)
 
 ---
 
@@ -83,19 +83,19 @@ _(Stay tuned for match schedules and updates!)_
 
 ## 📢 Follow Us for Updates
 
-🔵 **Facebook** – [Join Us](https://facebook.com/yourpage)
-🟣 **Instagram** – [Follow Us](https://instagram.com/yourpage)
-🔴 **YouTube** – [Subscribe Now](https://youtube.com/yourchannel)
-🐦 **Twitter** – [Follow Us](https://twitter.com/yourpage)
-📢 **Telegram** – [Join Channel](https://t.me/yourchannel)
+🔵 **Facebook** – [Join Us](https://facebook.com/starsports)
+🟣 **Instagram** – [Follow Us](https://instagram.com/tensports)
+🔴 **YouTube** – [Subscribe Now](https://youtube.com/geosuper)
+🐦 **Twitter** – [Follow Us](https://twitter.com/tencricket)
+📢 **Telegram** – [Join Channel](https://t.me/tensports.live)
 
 ---
 
 ## 📩 Contact & Support
 
 📧 **Email:** support@yourapp.com  
-🌐 **Website:** [Visit Here](https://yourwebsite.com)  
-📞 **Support:** [Contact Us](https://yourcontactpage.com)
+🌐 **Website:** [Visit Here](https://ptvsports.com)  
+📞 **Support:** [Contact Us](https://ptvsports.com/contact)
 
 💬 **For Business Inquiries & Sponsorships**, contact us at **business@yourapp.com**
 
